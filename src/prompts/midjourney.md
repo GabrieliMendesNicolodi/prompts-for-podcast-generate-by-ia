@@ -1,0 +1,1 @@
+Ethereal minimalist Alien race cybergoth fashion photography painting, in the style of  olive green , pearl white and silver, long dressed , use of palette knives, full body wide shot, from behind, mouving pose painting oel of teachment , intricate, sharp_focus, concept_art, simple backround
